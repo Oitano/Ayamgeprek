@@ -1,2 +1,0 @@
-# Ayamgeprek
-Ayam Geprek Kings 
